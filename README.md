@@ -8,8 +8,9 @@ But wait, there's more! I collaborate closely with developers 👩‍💻👨‍
 
 So, if you're looking to create experiences that are as smooth as butter 🧈 and as captivating as a blockbuster movie 🎥, let's join forces! Together, we'll create digital masterpieces that leave your users amazed! 🚀🌟
 
-Ready to embark on this epic design adventure? Drop me a message and let's make some magic! ✉️🔮
+Ready to embark on this epic design adventure? Drop me a message and let's make some magic! ✉️🔮<br><br>
 
-![software-skills](https://github.com/youssefbrahimmm/youssefbrahimmm/assets/135286062/30ea7157-f066-4e07-a2ff-920852f6b889)
+![software-skills](https://github.com/youssefbrahimmm/youssefbrahimmm/assets/135286062/30ea7157-f066-4e07-a2ff-920852f6b889)<br><br>
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/youssefbrahim) [![Dribbble](https://img.shields.io/badge/Dribbble-%23EA4C89?style=for-the-badge&logo=dribbble)](https://dribbble.com/youssefbrahim)
+
+[![linkedin-button](https://github.com/youssefbrahimmm/youssefbrahimmm/assets/135286062/4674c84d-cfc5-47d5-a679-bd068b5fa30d)](https://linkedion.com)
