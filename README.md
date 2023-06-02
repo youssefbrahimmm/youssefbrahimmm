@@ -1,4 +1,4 @@
-# UX Design: 🎨✨
+# UX Design 🎨✨
 
 Hey there! Are you ready to level up your user experience? Look no further! As a UX designer, I'm your design wizard 🧙‍♂️, ready to create enchanting interfaces that will make your users go "Wow!" 🤩✨
 
