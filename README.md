@@ -10,6 +10,6 @@ So, if you're looking to create experiences that are as smooth as butter 🧈 an
 
 Ready to embark on this epic design adventure? Drop me a message and let's make some magic! ✉️🔮
 
-![figma-logo-0](https://github.com/youssefbrahimmm/youssefbrahimmm/assets/135286062/68466a05-d806-4887-a3a4-e54c36733887)
+![software-skills](https://github.com/youssefbrahimmm/youssefbrahimmm/assets/135286062/30ea7157-f066-4e07-a2ff-920852f6b889)
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/youssefbrahim) [![Dribbble](https://img.shields.io/badge/Dribbble-%23EA4C89?style=for-the-badge&logo=dribbble)](https://dribbble.com/youssefbrahim)
