@@ -9,3 +9,5 @@ But wait, there's more! I collaborate closely with developers 👩‍💻👨‍
 So, if you're looking to create experiences that are as smooth as butter 🧈 and as captivating as a blockbuster movie 🎥, let's join forces! Together, we'll create digital masterpieces that leave your users amazed! 🚀🌟
 
 Ready to embark on this epic design adventure? Drop me a message and let's make some magic! ✉️🔮
+
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/youssefbrahim) [![Dribbble](https://img.shields.io/badge/Dribbble-%23EA4C89?style=for-the-badge&logo=dribbble)](https://dribbble.com/youssefbrahim)
